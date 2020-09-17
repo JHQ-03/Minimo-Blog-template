@@ -1,0 +1,1 @@
+# Minimo-Blog-template
